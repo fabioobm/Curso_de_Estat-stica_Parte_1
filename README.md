@@ -1,0 +1,2 @@
+# Curso_de_Estat-stica_Parte_1
+Curso_de_Estatística_Parte_1
